@@ -1,16 +1,21 @@
-### Hi there 👋
+### what's up
+i am hayes
 
-<!--
-**MW-was-taken/mw-was-taken** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+proud member of the roblox clone community (Cope)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### song quotes ( i am a nerd )
+
+_if you want it done right you should just do it yourself_
+<hr>
+
+_would it be weird if i asked, to never leave_
+<br>
+
+_can I just be stuck to you_
+<br>
+
+_would it be free if i said_
+<br>
+
+_i'm not free, without you, beside me_
